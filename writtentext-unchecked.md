@@ -1,8 +1,8 @@
 # UCS - Robert-Jan
 
-1. Couldn't resist taking a picture of the icon in the toilet that I visited knowing all that I knew about the UCS at that time. It was the first custom-made element in the Rijksmuseum that drew my attention.
-2. Of course the map with the same thought.
-3. As I was alone my visit was really biased as I tried to get my head around everything I heard, giving everything a place. But I remembered that before I knew anything about this project the reactions op people to this particular diamond drew my attention. I myself was attracted to its flicker. I often write my thoughts down in a museum when alone and this was what I did the first time I noticed this, and this time as well. Unluckily nobody really responded to the diamond like the first time. I suppose my own fascination with it stimulated others back then.
+1. In this first photo I couldn't resist taking a picture of the icon in the toilet knowing all that I knew about the UCS at that time. It was the first custom-made element in the Rijksmuseum that drew my attention.
+2. Of course the same for the map with the navigation issue in mind.
+3. Because I was alone my visit was really biased as I tried to get my head around everything I heard from the project, I was trying to give everything a place. But I remembered that before I knew anything about this project the reactions people had to this particular diamond drew my attention. I myself was attracted to its flicker. I often write my thoughts down in a museum when I'm alone and this was what I did the first time I noticed this. Unluckily nobody really responded to the diamond like the first time. I suppose my own fascination with it could have stimulated others back then.
 5. Couldn't resist taking that photo, I don't know why, it is not that pretty. Its emotive though. Perhaps I took it because it drew a child's interest when I walked past.
 7. I took the fifth picture because the area itself drew my attention. The lights were dimmed, which made the objects all the more mysterious.
 11. This one in particular I felt to photograph. But perhaps too because I wanted to photograph one of the objects inside the dark area. Right now it stikes me as aery but also pretty. The pink creates a pretty contrast with the black and white children. Especially because they are very composed.
